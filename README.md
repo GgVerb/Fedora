@@ -1,1 +1,1 @@
-a jewelry store făcuse on magic effect on the clienți. sales stile particular.
+a jewelry store focused on magic effect on the clients. sales stile particular.
